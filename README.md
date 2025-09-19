@@ -7,6 +7,7 @@
 
 🔗 Connect with me:  
 - GitHub: [NIKHIL-AIEN](https://github.com/NIKHIL-AIEN)  
-- LinkedIn:[Nikhil saini](https://www.linkedin.com/in/nikhil-saini-3577a037a/)
+- LinkedIn: [Nikhil Saini](https://www.linkedin.com/in/nikhil-saini-3577a037a/)  
+
 
 
